@@ -1,4 +1,3 @@
-
 👋 Hi, I’m Zachary
 👀 I’m interested in rockets, video games, cars, planes, pretty much anything techical or STEM related
 🏫 I’m currently studying Aerospace Engineering at university
